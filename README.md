@@ -3,7 +3,7 @@
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=priyanshu-rana7&label=Profile%20views&color=0e75b6&style=flat" alt="priyanshu-rana7" /> </p>
 
-- 🔭 I’m currently working on **Automated Challan Ticketing System**
+- 🔭 I’m currently working on **Automated Challan Ticketing System** and **Intelligent Market Waste Optimizer**
 
 - 🌱 I’m currently learning **TensorFlow,OpenCV**
 
