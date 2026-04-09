@@ -15,7 +15,7 @@
 
 - 📫 How to reach me **priyanshu619rana@gmail.com**
 
-- 📄 Know about my experiences [Link](https://drive.google.com/file/d/1yCEQvXLFjYbyLVFu6jUEcaIBKGM-qxBR/view?usp=sharing)
+- 📄 Do I look interesting to you? Here's the resume: [Link](https://drive.google.com/file/d/1LtvZjdRwVM6uvshoeYwGIcpZi1iRwDiK/view?usp=sharing)
 
 - ⚡ Fun fact **I like cooking 🔪, gaming🎮 and I'm a proud pistonhead🛠️ (I love engines!!)**
 
