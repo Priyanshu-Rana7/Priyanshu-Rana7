@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **priyanshu619rana@gmail.com**
 
-- ⚡ Fun fact **I like cooking 🔪, gaming🎮 and I'm a proud pistonhead🛠️ (I love engines!!)**
+- ⚡ Fun fact : **I like cooking 🔪, gaming🎮 and I'm a proud pistonhead🛠️ (I love engines!!)**
 
 <h3 align="left">Connect with me:</h3>
 <table>
